@@ -1,1 +1,1 @@
-# bruhal-pupsik
+# bryhal-pupsik
